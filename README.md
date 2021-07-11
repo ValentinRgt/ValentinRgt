@@ -1,10 +1,10 @@
 ### Hi there 👋, I'm Valentin
 
-I'm a 19yo **French developer** :fr: ✊ ! </br>
+I'm a 20yo **French developer** :fr: ✊ ! </br>
 
 #### 📫 - How to reach me
 
-- [🎧 @Mr. Valentin#9905](https://discord.gg/9qND7vv)
+- [🎧 @Mr. Valentin#9905](https://discordapp.com/users/261986604816531457/)
 
 #### 🔗 - Follow me everywhere & support me
 
